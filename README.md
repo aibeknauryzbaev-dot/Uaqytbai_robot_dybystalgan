@@ -1,0 +1,2 @@
+# Uaqytbai_robot_dybystalgan
+Uaqytbai_robot_dybystalgan
